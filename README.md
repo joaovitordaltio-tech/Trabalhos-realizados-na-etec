@@ -1,1 +1,1 @@
-# Trabalhos-realizados-na-etec
+# João e Thiago
