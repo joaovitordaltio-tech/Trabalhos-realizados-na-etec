@@ -1,1 +1,1 @@
-# João e Thiago
+# Aula 2
